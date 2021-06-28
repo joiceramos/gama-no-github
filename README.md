@@ -1,0 +1,1 @@
+O curso da Gama Academy está sendo muito bom para meu aprendizado!
